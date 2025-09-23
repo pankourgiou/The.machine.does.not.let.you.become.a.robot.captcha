@@ -4,4 +4,5 @@
 #fact #4 a.i. is a tool that creates...generates tools we are there..singularity.
 #fact #5 what about cryptography? cybersecurity? 
 #fact #6 revise the 5 previous facts...and dont take it lighthearted.
+#Αννα,ειναι η αγαπη κουτη ετσι ειναι. 
 
